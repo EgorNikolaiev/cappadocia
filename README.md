@@ -1,1 +1,1 @@
-https://mrgo336.github.io/cappadocia/
+https://EgorNikolaiev.github.io/cappadocia/
